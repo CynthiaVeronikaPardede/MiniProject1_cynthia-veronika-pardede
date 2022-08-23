@@ -1,0 +1,1 @@
+# MiniProject1_cynthia-veronika-pardede
